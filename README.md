@@ -1,5 +1,9 @@
 ###Hello , Singapore
 ====
+0. 需要带的东西  
+   防晒霜  
+   相机 （ 2个镜头， 防水套， 2X32G， 2电池）  
+   GPS  
 
 1. Shopping List  
   Watches  
