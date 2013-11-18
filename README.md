@@ -10,7 +10,7 @@
    a. JOJO  Comic Vol15:  http://www.dm5.com/m30825/  <--- print in A4 paper.  
   
 3. 需要拜访的地方   
-   a. 三个鱼尾狮 ( 鱼尾狮公园, 圣淘沙公园的鱼尾狮像 , 还有个在哪里？  )
+   a. 三个鱼尾狮 ( 鱼尾狮公园, 圣淘沙公园的鱼尾狮像 , 还有个在哪里？  )  
    b. 赌场  
    c. 佛牙寺龙华院，牛车水原貌馆   
    d. 圣安德烈教堂 (St. Andrew's Cathedral) , 旧国会大厦, 维多利亚剧院, Sands Hotel  
