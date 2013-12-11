@@ -22,5 +22,5 @@
    g. Zoological Gardens  
    h. 苏丹回教堂  Sultan Mosque  
    I. 新加坡总统府 Istana  
-4.  
+4.  肉偿。。。。 :(
 
