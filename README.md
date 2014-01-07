@@ -2,6 +2,7 @@
 ====   
 0. 需要带的东西  
    jetstar 行程单，收据需要打印，带身上   
+   皮皮岛订单
    防晒霜  
    相机 （ 2个镜头， 防水套， 2X32G， 2电池）  
    GPS  
@@ -10,8 +11,9 @@
   Watches  
   [Luminox-9272](http://www.amazon.com/Luminox-9272-Raptor-Chronograph-Watch/dp/B006H0JGMA/ref=sr_1_1?ie=UTF8&qid=1384664991&sr=8-1&keywords=9272+F-22 "9272")  
   [Luminox-1942](http://www.amazon.com/Luminox-Atacama-Chronograph-Gunmetal-1942/dp/B00A6MFFPW/ref=sr_1_1?ie=UTF8&qid=1384665050&sr=8-1&keywords=Luminox+1942 "1942")    
-  [汉米尔顿Hamilton 卡其野战系列机械男表 H70515137](http://item.jd.com/803611.html)
-  
+  [汉米尔顿Hamilton 卡其野战系列机械男表 H70515137](http://item.jd.com/803611.html)    
+  [JY0050-55L](http://www.amazon.com/Citizen-JY0050-55L-Skyhawk-Titanium-Eco-Drive/dp/B001QFYKTA/ref=sr_1_1?s=watches&ie=UTF8&qid=1389098786&sr=1-1&keywords=JY0050-55L)      
+  [BL5435-58E](http://best.pconline.com.cn/chaozhi_12591.html)    
 3. 需要拜访的地方   
    a. 两个鱼尾狮 ( 鱼尾狮公园, 圣淘沙公园的鱼尾狮像  )  
    b. 赌场  
