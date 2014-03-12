@@ -1,4 +1,4 @@
-###Hello , Singapore
+####Hello , Singapore
 ====   
 0. 需要带的东西  
    jetstar 行程单，收据需要打印，带身上   
@@ -29,29 +29,30 @@
 
 SGBNR    
 
-**** chapt 1     
+####2014 Wedding 摄影安排
+###### chapt 1     
 新郎家取景：
 系鞋，带手表，系领带，拿西装，上装
 
 
-**** chapt 2     
+###### chapt 2     
 新郎出门
 
 
-****  chapt 3    
+###### chapt 3    
 装修婚车
 主婚车的正脸，侧脸。
 路上
 
 
-****  chapt 4    
+######  chapt 4    
 到新娘家，
 新郎下车，
 新郎和伴郎整理整理准备进门
 鞭炮屑
 
 
-**** chapt 5    
+###### chapt 5    
 新娘家：
 化妆，
   整理新娘头饰时站在边上从侧方高处往下拍，要能看到半个脸和眼睛
@@ -69,7 +70,7 @@ SGBNR
 楼梯：新娘下楼前，若此时父母还在房间，新娘走到楼梯中部回头
 
 
-  
+###### Famous Photograph
 jeff ascough     
 joe buissink    
 Denis Reggie
