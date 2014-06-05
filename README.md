@@ -11,4 +11,6 @@ Readme
 2. 集聚系数，度分布，最短路径
 3. 
   
-954908825
+954908825    
+大教堂与市集（The Cathedral and the Bazaar）    
+企鹅与怪兽     
