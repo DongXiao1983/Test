@@ -25,7 +25,7 @@
    h. 苏丹回教堂  Sultan Mosque  
    I. 新加坡总统府 Istana  
 4.  1 22'29.94'' 103 56' 30.68''   
-
+    dd
 
 SGBNR    
 
