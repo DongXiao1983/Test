@@ -7,6 +7,8 @@
    相机 （ 2个镜头， 防水套， 2X32G， 2电池）  
    GPS  
 
+ 股票
+
 1. Shopping List  
   Watches  
   [Luminox-9272](http://www.amazon.com/Luminox-9272-Raptor-Chronograph-Watch/dp/B006H0JGMA/ref=sr_1_1?ie=UTF8&qid=1384664991&sr=8-1&keywords=9272+F-22 "9272")  
